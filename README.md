@@ -1,8 +1,8 @@
 # Presentación Personal
 
 ### Mis datos:
-* Nombre completo: Tomás Alvarez
-* Legajo: 233.674-1
+* **Nombre completo**: Tomás Alvarez
+* **Legajo**: 233.674-1
 
 ### Sobre mí
 Tengo 20 años y me apasionan mucho los deportes, especialmente el fútbol. Juego de 9 (o mejor dicho jugaba), ya que tristemente el año pasado me uní al equipo de la facu y en el primer entrenamiento me rompí los ligamentos. 
