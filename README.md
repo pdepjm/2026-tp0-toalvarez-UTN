@@ -9,6 +9,8 @@ Tengo 20 años y me apasionan mucho los deportes, especialmente el fútbol. Jueg
 
 Llevo más de un año sin poder pisar una cancha y me quedan varios meses más. Sin dudas una de las peores experiencias de mi vida, pero viéndole el lado positivo, al pasar tanto tiempo en casa me puse las pilas con la facu (ojalá). :(
 
+También me encanta el mate y lo llevo a todos lados, tranquilamente puedo estar tomando 5 termos por día (debo tener una adicción), pero me sirve mucho para poder sentarme ya sea frente a la compu o la clase y prestar atención o no dormirme. Siempre amargo, porque lo dulce son las personas con las que te juntás a tomarlo... Así que si te comparto un mate en clase, me caés bien.
+
 Para que no haya dudas de qué equipo soy, les dejo una foto:
 
 <img width="1440" height="810" alt="pity-martinez_1440x810_wmk" src="https://github.com/user-attachments/assets/519bb75c-765a-4a70-b6b9-c145451e610c" />
